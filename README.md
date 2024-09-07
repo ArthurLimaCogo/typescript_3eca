@@ -1,0 +1,3 @@
+### Nome: ARTHUR LIMA COGO
+### RM: 93308
+### CLASSE: 3ECA
